@@ -1,6 +1,4 @@
-Here's a description you can use:
 
----
 
 🚨 **Flashback to the 90's!** 🚨
 
